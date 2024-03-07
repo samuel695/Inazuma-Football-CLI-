@@ -7,3 +7,4 @@
 ***Also check out our other game***
 
 *[World Of War](War-Game)*
+***Contact us on olawoleolaniran@gmail.com***
